@@ -2,10 +2,7 @@
 title: Music Theory Grade 1
 description: Passed my music theory grade 1 exam
 date: 2023-10-06 00:00:00+0000
-image: picture.jpg
-categories:
-    - music
-    - exams
+image: picture.jepg
 tags:
     - music
     - exams

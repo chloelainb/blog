@@ -3,9 +3,7 @@ title: Peacock and the Tiger
 description: My first blog story
 slug: story
 date: 2024-10-19 00:00:00+0000
-image: picture.jpg
-categories:
-    - Story
+image: picture.jepg
 tags:
     - Story
 ---

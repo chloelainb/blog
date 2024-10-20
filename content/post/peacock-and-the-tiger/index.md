@@ -9,23 +9,23 @@ tags:
 
 ## Chapter 1 
 
-Once there were two animals called Leon the tiger and Pepa the peacock. They were very close friends. They lived in a zoo. One day they were playing a game and loads of people came to them and looked at them. Leon and Pepa were both hearing "ooowww they playing  i have never seen a peacock and a tiger play, normaly the tiger eats the peacock heehee". Leon and Pepa were saying "Why are you looking at us weired? OK lets do a cute pose maybe Tiger Swift will see us on TikTok you never know!". At the end of the day when all the people left and they were playing before dinner they were just speaking about how weired that was because every single day they do that and none of the people were so "ooowww they are so cute" they had never done that so as soon as they called "dinner time" they quickly ran to the table for dinner. After dinner they had one more play time and then about 30 mins later they said "bed time!" so they quickly ran to bed.
+Once there were two animals called Leon the tiger and Pepa the peacock. They were very close friends. They lived in a zoo. One day they were playing a game and loads of people came to them and looked at them. Leon and Pepa were both hearing “ooowww they are playing i have never seen a peacock and a tiger play, normally the tiger eats the peacock heehee”. Leon and Pepa were saying “Why are you looking at us weird people? OK let's do a cute pose, maybe Tiger Swift will see us on TikTok you never know!”. At the end of the day when all the people left and they were playing before dinner they were just speaking about how weird that was because every single day they do that and none of the people were so “ooowww they are so cute” they had never done that so as soon as they called “dinner time” they quickly ran to the table for dinner. After dinner they had one more play time and then about 30 mins later they said “bed time!” so they quickly ran to bed.
 
 ## Chapter 2
 
-The next morning Pepa said "good morning how are you?" to Leon "umm good thank you". They both got their breakfast and got back in their cages and people started coming in and doing the same thing, but to diffrent animals in the zoo, they could speak to but they just looked shy they did not like it at all because it was the koala they was doing it to only one animal got a bit of attention and that was the hippo potamas he was hidding his self under his muddy brown mud and he did not like it at all. By the afternoon the zoo had a 10 min break because they liked people coming in but they did not like them taking pictures though and they did not normally have to do that also after people came back in they had to wait in the queue because the done a check of their bags and took their phones to and they done a bag check so that there was not a single picture thing yo be seen. They took all of them but gave it all back at the end.
-
+The next day Pepa and Leon were playing in their cages. This time people looked at the Koala Narla and the people said the same thing "oooowwww that Koala is so cute". Narla is one of the shyest animals in the zoo because recently she had a new sister called Skylar and her mum has to look after her so she doesn't see her that much. Pepa looked over to the opposite side of Narlas cage and Pepa  said "look at Piper the hippo, she never ever gets attention and there are loads of people looking at her now". They all looked and spoke about her and said "poooooooyyyyyy that is stinky but look how good that hippo is diving into that mud".
+  
 ## Chapter 3 
 
-The next day they all had an INSET day so the went on a special air plane to visit another zoo, Pepa and Leon said if they made new friends on the trip, they wont get mad at each other and made some rules:
+The next day Pepa, Leon, Narla and Piper heard that they were going on school trips because they are so popular now, so they get to go on one every sunday. When they were getting into their paires to get on to the plane pepa and Leon agreed that they are going to have to  have some rules about being BFFs and being kind to everyone! The rules were:
 
-1.Not be mad at each other because they were BFFs
-2.They would all play together and have fun
-3.BE KKKKKKKKKKKKKKIIIIIIIIINNNNNNNNNNNNNNNNNNNNNNDDDDDDDDDDDDDDDDDDDDDDDD AAAAAAAANNNNNNNNNNDDDDDD HHHHAAAAAVVVVEEE  FFFFFUUUUUMNNNNNNN TTTOOGGEETTHHEERR!!!!!!!!!!!!!
+1.They were kind and sat next to each other
+2.they helped each other 
+3.DO ALL OF THESE THINGS 
 
-They all had fun on the plane and as quick as a blink of an eye they were there. As soon as the got to the zoo they all said "Hi" and straight away they made lots of new friends. When Leon was at the front of the line for lunch and Pepa was at the back Leon saved two seats, one his new friend Susen and one for Pepa. Susen the panda sat next to Leon but Pepa sat next to her new friend Carla far far away from Susen and Leon. Leon was really sad and ran to the bathroom then Pepa followed her to make sure he was ok, but he was crying and sobing that his BFF sat next to her new friend and not her! On the way back Pepa was trying to make Leon happy but she was not and he was silent. At the end the were bfffffffffffffffffs forever.
+When they got off the plane, they had a new teacher called Miss Bamboo who was a giant panda, they learned animal coding in the morning and at lunch time Miss Bamboo ate bamboo, Narla had some leaves from the garden, Leon had some meat, Pepa had bird seeds and Piper had a mud cake, they all ate at the same table. After lunch they had a writing class and were told to write about all the fun things they did that day. At the end of the day there was an argument between all the classmates because none of them could agree on what game to play in free time and it turned it into a nightmare when they did play a game because there were pairs and no one wanted to pair up! Because Pepa and Leon had a fight, Pepa was with Piper and Leon was with Narla. Leon rushed to the bathroom to cry because she never thought that Pepa would be so mean and forget their rules. On the way home Pepa sat with Piper and made Leon even more sad. Narla was trying to be kind to Leon but he didn't really care as he was so upset with Pepa. 
 
-The End 
+The end
 
 There will be other storys very soon.
 

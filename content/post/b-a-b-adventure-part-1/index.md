@@ -1,7 +1,6 @@
 ---
 title: Build a bears adventures (part 1)
 description: Rosie and Cutie win sports day
-slug: story
 date: 2024-10-20 00:00:00+0000
 image: picture.jpeg
 tags:

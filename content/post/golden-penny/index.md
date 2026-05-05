@@ -1,6 +1,6 @@
 ---
 title: Golden Penny
-description: My entry to the Mint museum golden penny compertition
+description: My entry to the Mint museum golden penny competition
 date: 2026-05-05 00:00:00+0000
 image: picture.jpg
 tags:

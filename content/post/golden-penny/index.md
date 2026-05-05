@@ -2,7 +2,7 @@
 title: Golden Penny
 description: My entry to the Mint museum golden penny compertition
 date: 2026-05-05 00:00:00+0000
-#image: picture.jpeg
+image: image.jpeg
 tags:
     - Story
 ---
